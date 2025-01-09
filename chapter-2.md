@@ -1,0 +1,3 @@
+Needless to say, none of these stories “worked.”
+
+During the beginning of my second year at Kansas State I had the opportunity to work with Professor Ben Nyberg (then the Fiction Editor of Kansas Quarterly), sitting in and helping to teach his Beginning Fiction class, and it was there I discovered a scaffolding to hang my stories on. His approach was rooted in the modernist era, the works of Sherwood Anderson, Willa Cather, Ernest Hemingway, Katherine Mansfield, and John Steinbeck.
